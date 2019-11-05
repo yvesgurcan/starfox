@@ -1,1 +1,1 @@
-https://codepen.io/YusukeNakaya/pen/LvePgj?editors=1000#0
+https://codepen.io/YusukeNakaya/pen/LvePgj
